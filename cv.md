@@ -1,4 +1,4 @@
-# **Chervyakov Vladislav**
+# **Repository Owner**
 
 + Telegram: [@vladislav_chervyakov](https://t.me/vladislav_chervyakov)
 + Discord: Chervyakov Vladislav#4347
